@@ -1,1 +1,1 @@
-"Yes, LET's rent a moonbounce and put it on a barge down the hudson!"
+Yes, let's rent a moonbounce and put it on a barge down the hudson!
